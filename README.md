@@ -1,0 +1,2 @@
+# KAYADEPOSU
+YATIRIM A.Ş
